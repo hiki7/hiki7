@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Yerzhan
+## 👋 Hi, I'm Yerzhan!
 👩🏻‍🎓 Computer science student
 
 
